@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... suggestions/ideas and new projects
 - 📫 How to reach me ... email:rajtovino@gmail.com
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... learning is fun and enthusistic
+- ⚡ Fun fact: ... Real Fun...!! 
 
 <!---
 RajKumar-dot-stack/RajKumar-dot-stack is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
